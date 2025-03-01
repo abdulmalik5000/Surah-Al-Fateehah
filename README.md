@@ -1,2 +1,2 @@
-# Surah-Al-Fateehah
-coming soon Insha Allah
+# Al-Fateehah
+This is Al Fateehah
