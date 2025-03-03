@@ -1,2 +1,1 @@
-# Al-Fateehah
-This is Al Fateehah
+# الفاتحہ کا خط
